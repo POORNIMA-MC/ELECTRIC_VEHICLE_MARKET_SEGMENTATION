@@ -1,2 +1,3 @@
 # ELECTRIC_VEHICLE_MARKET_SEGMENTATION
-![image](https://github.com/POORNIMA-MC/ELECTRIC_VEHICLE_MARKET_SEGMENTATION/assets/94465883/5722bfb3-a491-436e-8871-0e803e1a8516)
+![Uploading pngtree-d-render-of-futuristic-electric-car-charged-by-electric-wire-in-picture-image_2680310.jpg…]()
+
